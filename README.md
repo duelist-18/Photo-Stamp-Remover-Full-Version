@@ -1,0 +1,1 @@
+# Photo-Stamp-Remover-Full-Version
